@@ -4,3 +4,5 @@ https://colab.research.google.com/drive/1aJ_Q6SZk7Rf1nsJf1p-vLh0BLscOrg5V?usp=sh
 
 2. ALZHEIMER PREDICTION CODES TO ACCESS https://colab.research.google.com/drive/1FxWO8DP7ZDdHYKd9JtzcFPI6RZgIwJTf.
 THE CODE WRITTEN IS AVAILABLE ON THE SCREENSHOT.
+
+YOU CAN ASK ME FILES THAT YOU WANT via salih.yalcinn@hotmail.com
